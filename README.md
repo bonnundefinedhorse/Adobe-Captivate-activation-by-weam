@@ -1,0 +1,1 @@
+# Adobe-Captivate-activation-by-weam
